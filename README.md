@@ -1,7 +1,7 @@
-# https://nikkyfreaky.github.io/
+# https://lizzzza22.github.io/Konechniy_project/
 
-# https://nikkyfreaky.github.io/events.html
+# https://lizzzza22.github.io/Konechniy_project/events.html
 
-# https://nikkyfreaky.github.io/event.html
+# https://lizzzza22.github.io/Konechniy_project/event.html
 
-# https://nikkyfreaky.github.io/default.html
+# https://lizzzza22.github.io/Konechniy_project/default.html
